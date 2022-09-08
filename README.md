@@ -1,6 +1,4 @@
 # Lucas Coelho (my_bio)
-
-## Hi there! 👋🏻
 > Welcome to my profile 🌟
 
 - 2.1y 🔞
