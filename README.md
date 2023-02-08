@@ -1,4 +1,4 @@
-## Lucas Sampaio
+## Lucas Sampaio ![](https://komarev.com/ghpvc/?username=lucasscoelho3&color=blue)
 > Welcome to my profile 🌟
 
 • 2.1y 🔞 • Software Developer 👾#️⃣ • Learning Dart/Flutter & Node.js ✳️ • Seeking knowledge 📚 • Amateur designer ✒️
